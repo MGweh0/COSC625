@@ -1,3 +1,3 @@
 # Intro
 
-Hi my name Marily 
+Hi my name Marilyn; nice to meet you!!! 
